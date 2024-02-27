@@ -1,2 +1,10 @@
 oi, me chamo Isabelly Farteski Cichoski 😙
-!{}(https://tenor.com/pt-BR/view/oh-yeah-getit-dance-boogie-gif-24194925)
+
+Nesse ano quero:
+ - Quero passar no vestibular da UFPR; 👩‍🎓
+ - Quero ser uma pessoa melhor; 😄 
+ - Quero ser mais saldável; 🥗
+ - Quero ler muitos livros; 📖
+ - Quero cortar meu cabelo; 💇
+ - E me formar. 🗂️
+   
